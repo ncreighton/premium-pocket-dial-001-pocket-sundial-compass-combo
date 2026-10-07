@@ -1,0 +1,2 @@
+# premium-pocket-dial-001-pocket-sundial-compass-combo
+Tired of scattered navigation notes and disorganized craft projects? The Pocket Sundial &amp; Compass Combo Craft Lab transforms how you document, design, and build DIY navigation tools—all in one unified Notion workspace.  This isn't just a template—it's a complete craft laboratory for pocket dial enthusiasts. Combine sundial design documentation, com
